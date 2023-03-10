@@ -1,0 +1,2 @@
+# Farm-management-Lpr3
+THE FINAL PROJECT OF 2º YEAR 1ºSEMESTER
